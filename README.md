@@ -1,1 +1,1 @@
-# Rezult_school_A.T.
+# Rezult
